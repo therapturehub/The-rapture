@@ -37,13 +37,13 @@ And there are proofs of this.
 
 I am a living witness to that.
 
-How am I a witness to that?
+## How am I a witness to that?
 
 I witnessed my whole family get raptured.
 
 My street became a desolated zone.
 
-Why did God rapture people?
+## Why did God rapture people?
 
 This is the end times. And in the end times, terrible things have been prophesied to happen.
 
