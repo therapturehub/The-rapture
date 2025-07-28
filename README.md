@@ -114,4 +114,4 @@ Get into him before it is too late.
 
 This article was written under Jesus Guidance.
 
-…And the Trinity (...).
+…And the Trinity plus Mary - Mother of Christ (....).
