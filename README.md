@@ -13,6 +13,7 @@ That was the day.
 The day the once prophesied rapture became a reality. The Bible became true.
 
 ## What is the rapture?
+<img width="1024" height="1024" alt="Image" src="https://github.com/user-attachments/assets/c9a82f14-1b23-474f-8d75-70c4f3f25ca1" />
 
 The rapture is a spiritual event prophesied by Jesus and his disciples where God's saints were taken from this earth and catapulted to heaven via God's angels via an ascension.
 
